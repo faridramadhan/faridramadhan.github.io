@@ -1,1 +1,1 @@
-# faridramadhan.github.io
+# faridramadhan.github.io/Tugas%20Farid.html
